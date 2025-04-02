@@ -103,4 +103,4 @@ We’re always looking for passionate individuals to join our mission. Send your
 
 ---
 
-© 2024 DeepPlants. 🌟 All rights reserved.
+© 2025 DeepPlants. 🌟 All rights reserved.
